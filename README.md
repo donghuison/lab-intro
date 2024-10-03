@@ -1,1 +1,1 @@
-# Solar Dynamics Lab. Intro, KyungHee University
+# Solar Dynamics Lab. Intro, Kyung Hee University
